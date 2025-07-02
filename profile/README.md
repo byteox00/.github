@@ -3,7 +3,7 @@
 ![Profile Views](https://komarev.com/ghpvc/?username=byteox00&style=flat-square&color=blue)
 
 
-![IMG_3458](https://github.com/user-attachments/assets/1ff3d426-d4e1-4c66-817a-258bf2349885)
+![IMG_3458](https://github.com/byteox00/picx-images-hosting/raw/master/Screenshot-2025-07-02-at-10.11.56 PM.96a0ppmfnq.webp)
 
 ## 🚀 About Me
 
